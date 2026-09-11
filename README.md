@@ -1,4 +1,4 @@
-## Hi there 👋
+<img width="287" height="287" alt="Image" src="https://github.com/user-attachments/assets/76a7b625-595d-44cc-a0fd-eab567274970" />
 
 <!--
 **thomas-tmz/thomas-tmz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
