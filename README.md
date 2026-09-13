@@ -1,6 +1,5 @@
 <img width="287" height="287" alt="Image" src="https://github.com/user-attachments/assets/76a7b625-595d-44cc-a0fd-eab567274970" />
-<img width="800" height="410" alt="Image" src="https://github.com/user-attachments/assets/15b83864-1b02-4718-9ac9-9ae47c9890f8" /> 
-
+<img width="710" height="410" alt="Image" src="https://github.com/user-attachments/assets/32af3ff1-2343-4df3-b523-6fcd5b388910" />
 
 ° ⋅.˳˳. ♡ ֹ  𓈒 𓂂 ྀི𓈒ֺ ⋅.˳˳.  ׄ ⋅.˳˳.  °⠀.˳˳. 𓈒 𓂂 ྀི𓈒ֺ ⋅.˳˳.  ׄ   𓈒 ༷𓈒  ݁ ⋅.˳˳. °⠀ ⋅.˳˳. ♡ @frfr ֹ  𓈒 𓂂 ྀི𓈒ֺ ⋅.˳˳.  ׄ   𓈒 ༷𓈒  ݁ ⋅.˳˳.    °⠀ ⋅.˳˳. ♡ ֹ 𓂂 ྀི𓈒ֺ ⋅.˳˳.  ׄ   𓈒 ༷𓈒  ݁ ⋅.˳˳.    °⠀ ⋅.˳˳. ♡ ֹ  𓈒 𓂂 ྀི𓈒ֺ ⋅.˳˳. ݁°⠀
 
